@@ -27,7 +27,7 @@
  <br>
 
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=PlRATEKIT&color=b04e22&plastic&label=⠀DISEASE+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=78A3C3&plastic&label=⠀FROZEN+;⠀"></img></p>
  <br>
  
 <p align="center">
