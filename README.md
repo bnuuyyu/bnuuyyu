@@ -24,7 +24,7 @@
 <p align="center"> 
   <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=78A3C3&plastic&label=⠀SOUL+;⠀"></img></p>
     ${\textsf{\color{lightblue} always free to c+h ⸝ int unless alias said otherwise .}}$ <br>
-         ${\textsf{\color{lightblue}interbinary ⸝ bisexual }}$ <br>
+         ${\textsf{\color{lightblue}interbinary ⸝ bisexual}}$ <br>
         
 
  <br>
@@ -40,7 +40,7 @@
  <br><br>
 
 
-<a href="https://mitsuaya.atabook.org/"> atabook</a> ✦ <a href="https://corrupted.crd.co">carrd</a> 
+<a href="https://frozendebt.atabook.org/"> atabook</a> ✦ <a href="https://corrupted.crd.co">carrd</a> 
 
  <img src="https://github.com/user-attachments/assets/85ddaa90-46f0-41dd-b554-4bb163900b25" width="950" height="auto" ></a>
 
