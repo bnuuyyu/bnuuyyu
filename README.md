@@ -16,10 +16,13 @@
 
 
 
-
            
 <p align="center">
-   ${\textsf{\color{lightblue}Azure or nyuyu ⸝ xe/he/they }}$<br>
+   ${\textsf{\color{lightblue} best viewed on pc mode}}$<br>
+
+    
+<p align="center"> 
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=bnuuyyu&color=78A3C3&plastic&label=⠀SOUL+;⠀"></img></p>
     ${\textsf{\color{lightblue} always free to c+h ⸝ int unless alias said otherwise .}}$ <br>
          ${\textsf{\color{lightblue}interbinary ⸝ bisexual !}}$ <br>
         
@@ -31,13 +34,13 @@
  <br>
  
 <p align="center">
-   ${\textsf{\color{lightblue}sign my ata 4 a cookie ⸝  }}$<br>
+   ${\textsf{\color{lightblue}ge DONT put my ponies on pin ⸝ dncopy  }}$<br>
     ${\textsf{\color{lightblue}frozendebt and azuretime enthusiast}}$ <br>
     ${\textsf{\color{lightblue}mili listener .}}$ <br>
  <br><br>
 
 
-<a href="https://medkit.atabook.org"> atabook</a> <a href="https://aesvic.straw.page">crrd</a> 
+<a href=""> atabook</a> <a href="">carrd</a> 
 
  <img src="https://github.com/user-attachments/assets/85ddaa90-46f0-41dd-b554-4bb163900b25" width="950" height="auto" ></a>
 
